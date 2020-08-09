@@ -1,1 +1,1 @@
-# resume depository of Jialin Kang
+# Resume Depository of Jialin Kang
